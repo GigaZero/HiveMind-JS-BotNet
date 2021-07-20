@@ -25,3 +25,8 @@ It has been proven possible to run javascript in ads so thats an idea to think a
 
 I am not responsible for any perceived damages or harm that may come from misuse of this software
 
+========================
+
+sorry on my english :)
+
+if need help you can comment here i will help you
